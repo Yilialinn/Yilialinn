@@ -1,4 +1,4 @@
-### 👋 Hi, I'm Yilia
+### 👋 Hi, I'm Yilia (/ˈi:liə/)
 
 - 👩🏻‍💻 A technical writer devoted myself to content marketing and documentation
 - 🌱 ISFJ, a defender who is very dedicated and warm protector
